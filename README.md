@@ -1,0 +1,2 @@
+# smiteClub
+Smite club info
