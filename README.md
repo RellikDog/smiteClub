@@ -6,7 +6,7 @@ What is Smite club?
 
 Smite club is Smash Bros and whiteboarding club. Smite Club stands for fun and for growing as individuals in low pressure enviroments. Don't come to be the best, come to have fun. The more the merrier!
 
-BYOB but please do BB
+
 
 White Boarding
 
